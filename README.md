@@ -1,1 +1,0 @@
-# Hanwha-PT
